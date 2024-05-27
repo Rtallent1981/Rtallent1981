@@ -5,7 +5,7 @@
 - 📫 How to reach me ... That's gonna be hard...  The last person I gave my treasure map too when she got to the gold she thought it was fake, and set the whole chest next to a dumpster and drove off mad and bitter
 - I won't give the map to anyone again, if you want the gold you gonna have to work for it. When you give the location away for free no one appreciates it, they question it. I just wanted to finally share it.
 - 😄 Pronouns: ... Listed by rank  Us, Her, Me, them...  But to my ex... By rank to her.....  Her, them, they, whomever, whatever, whosoever, whomsoever, those, anybody, anyone, everyone, everybody,  then finally HIM
-- ⚡ Fun fact: ... It's amazing what kind of information a person's family members will see you for $50 cash app
+- ⚡ Fun fact: ... It's amazing what kind of information a person's family members will sell you for $50 cash app
 
 <!---
 Rtallent1981/Rtallent1981 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
